@@ -1,4 +1,4 @@
-# ChatGPT 中文版：一分钟教会你，国内如何使用ChatGPT~ 【2025/02/27】       
+# ChatGPT 中文版：一分钟教会你，国内如何使用ChatGPT~ 【2025/02/28】       
 
 在国内能轻松使用 [**ChatGPT 中文版**](https://chat.yixiaai.com)，**无需翻墙**，**支持 GPT-4、4o、o1、o3 及中文版功能**。   
 
